@@ -5,4 +5,4 @@
 
 # Video demo
 
-https://drive.google.com/file/d/1neF_wlv60-FHa55VNxfFoM5VbYeNLy3q/view?usp=sharing
+https://drive.google.com/file/d/1niKznHv0NBRRtSgYmj3BX5porOnzL9pN/view?usp=share_link
