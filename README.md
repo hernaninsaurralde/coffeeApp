@@ -5,4 +5,4 @@
 
 # Video demo
 
-https://vimeo.com/770099714
+https://drive.google.com/file/d/1neF_wlv60-FHa55VNxfFoM5VbYeNLy3q/view?usp=sharing
